@@ -1,0 +1,1 @@
+Young woman, blue Long hair, smiling Side Face Cut, spanish, wearing gym clothes, tshirt, leggings}, fully covered, hyperrealism, 8K UHD, realistic skin texture, flawed skin, shot with Canon EOS 5D Mark IV, highly detailed,sitting in the cafe
